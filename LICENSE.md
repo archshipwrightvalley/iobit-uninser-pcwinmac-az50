@@ -1,4 +1,4 @@
-# 
+# Best IObit Uninstaller extensions for Mac OS | Premium IObit Uninstaller extensions for PC Windows. Featuring temporary file removal and rate limiting — optimized for maximum performance on every platform.
 
 
 
